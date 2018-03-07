@@ -36,3 +36,18 @@ Worked on automation of plant, involved in project planning scheduling and budge
 •	1ST POSITION IN Robo Race and Pick and place Robotic event in Technikos’13.
 •	3rd position in Bhangra competition.
 •	Member of college football team.
+
+##EDUCATION
+BACHELORS OF TECHNOLOGY
+From Punjab Technical University.	2010 – 2014
+(4 Year program)
+Electronics & Instrumentation
+
+##LANGUAGE
+ENGLISH, HINDI, PUNJABI
+Fluent speaking, reading, & writing
+
+##BIO
+Date of birth – 21st august, 1992.
+Sex – Male
+Marital status - Single
